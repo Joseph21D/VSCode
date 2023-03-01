@@ -1,0 +1,2 @@
+Adun fue un niño valiente y orgulloso Alto Templario que vivió en la Segunda Edad. El Cónclave le ordenó destruir a las Tribus Rogue, los Protoss que no aceptaron el Khala
+porque pensaban que les quitaba toda su individualidad. adun jovencito
